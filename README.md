@@ -20,7 +20,7 @@
 <h4>Why Undetected 👉 https://youtu.be/b96gAJefihI </h4>
 <br>
 
-# Arena Breakout Infinite Aimbot Hack
+# arena-breakout-infinite-aimbot-hack
 This arena breakout infinite aimbot hack is crafted using the safest and most reliable methods check the showcase for better understanding of this arena breakout aimbot hack software.
 
 ![arena breakout infinite aimbot](https://github.com/user-attachments/assets/aa7dce78-8fff-47fd-b491-7cfc7a5106f9)
@@ -39,12 +39,3 @@ https://discord.gg/nm2kk22kg6
 
 
 
-
-
-
-
-
-
-
-# arena-breakout-infinite-aimbot-hack
-This arena breakout infinite aimbot hack is crafter using the safest and most reliable methods check the showcase for better understanding of this arena breakout aimbot
