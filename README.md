@@ -25,6 +25,10 @@
 
 ![arena breakout infinite aimbot](https://github.com/user-attachments/assets/aa7dce78-8fff-47fd-b491-7cfc7a5106f9)
 
+![arena breakout infinite aimbot hack](https://github.com/user-attachments/assets/53839ab4-0311-450a-9c08-b9ce2171d715)
+
+![undetected aimbot arena breakout infinite](https://github.com/user-attachments/assets/10186ffc-af2d-4f7f-8cbc-04e646b965b6)
+
 
 <h2>YouTube</h2>
 https://www.youtube.com/@little_edge
